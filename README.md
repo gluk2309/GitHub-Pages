@@ -11,4 +11,4 @@
   
 Она очень ласковая т.к по природе ориентирована на любовь к хозяину.
 
-![](https://disk.yandex.ru/i/gvyVA0fpKEiI8w)
+![Фото кошки](https://disk.yandex.ru/i/gvyVA0fpKEiI8w)
